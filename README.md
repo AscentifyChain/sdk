@@ -1,5 +1,7 @@
 # 🚀 Ascentify
 
+Buy here : https://pump.fun/coin/7MSW3JGVxVSzyuuL5gvyGH5Npp2h2phGnL4zJ36Npump
+
 > Accelerating progress. Unlocking innovation.
 
 Ascentify is a forward-thinking platform designed to accelerate progress and unlock new levels of innovation in a fast-evolving digital ecosystem. Built for builders, creators, and visionaries, Ascentify empowers seamless growth, scalability, and intelligent transformation.
